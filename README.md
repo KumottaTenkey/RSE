@@ -33,5 +33,5 @@ For questions, suggestions, or contributions, please contact me on Discord (Kumo
 
 ---
 
-Thank you for checking out RSE! We look forward to seeing what you create.
+Thank you for checking out RSE! i look forward to seeing what you create.
 
